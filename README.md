@@ -5,7 +5,7 @@ It is in the spirit of similar documents from other leaders who have inspired.
 
 ## Guiding Principles
 
-**Humans first.** I believe that people are the most important part of any company. I believe that people being happy at work is a prerequisite to delivering great work. People are happiest when they are understood and valued. I will always make time to listen and work to ensure you are heard.
+**Humans first.** I believe that people are the most important part of any company. I believe that people being seen and supported at work is a prerequisite to delivering great work. People are most satisfied when they are understood and valued. I will always make time to listen and work to ensure you are heard.
 
 **Iteration and experimentation.** Things are not perfect now, but they'll only get better if we regularly reflect, give and accept feedback, and make small changes to everything continuously.
 
